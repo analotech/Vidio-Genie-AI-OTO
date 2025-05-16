@@ -1,4 +1,3 @@
-# Vidio-Genie-AI-OTO
 # VidioGenie AI OTO Funnel** – Your Ultimate Guide to the **Complete OTO Offers**, **Detailed Comparisons**, and **Exclusive Value-Packed Bonuses**.
 ====================================================================================================================================================
 
